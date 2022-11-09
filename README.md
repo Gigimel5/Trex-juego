@@ -1,0 +1,2 @@
+# Trex-juego
+Grarrrrrrrrrrrrrrrrrr
